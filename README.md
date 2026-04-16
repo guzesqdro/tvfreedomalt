@@ -1,3 +1,4 @@
 # tvfreedomalt
 The backup of TVFreedom!
-use https://tvfreedom.pages.dev
+use https://guzesqdro.dev
+
